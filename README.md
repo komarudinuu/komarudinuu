@@ -30,7 +30,7 @@ I'm a fresh graduate in Information Systems from UIN Jakarta with a passion for 
 ### 📫 How to Reach Me
 - ✉️ Email: komarudin1702@gmail.com
 - 💼 LinkedIn: [linkedin.com/in/komarudin1702](https://linkedin.com/in/komarudin1702)
-- 🧑‍💻 GitHub: [github.com/komarudin1702](https://github.com/komarudin1702)
+- 🧑‍💻 GitHub: [github.com/komarudinuu](https://github.com/komarudinuu)
 
 ---
 
